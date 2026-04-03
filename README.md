@@ -1,4 +1,4 @@
-# Hi there, I'm David
+# Hi there, I'm Mike - aka David Schouten
 
 👋 Welcome to my little corner of the digital jungle!  
 
